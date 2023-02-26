@@ -1,1 +1,1 @@
-# yousufisgay.com
+Diamond.com
